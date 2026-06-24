@@ -28,6 +28,6 @@
 
 ### Языки
 - Русский — родной
-- Английский — B1 (Intermediate)
+- Английский — С4 (Average native speaker)
 
 ---
